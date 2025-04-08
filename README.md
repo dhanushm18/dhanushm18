@@ -2,7 +2,7 @@
 
 🚀 **Aspiring AI/ML Engineer | Full-Stack Developer | Data Analyst**  
 🎓 **B.E. in Artificial Intelligence & Machine Learning @ PES College of Engineering, Mandya**  
-🏆 **2nd Place @ Innovate-A-Thon | Super 50 Top 250**  
+🏆 **2nd Place @ Innovate-A-Thon 
 
 ---
 
